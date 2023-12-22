@@ -39,7 +39,7 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- ❤ 𝐋𝐎𝐕𝐄𝐑:- 𝐀𝐌𝐌𝐎
+- ❤ 𝐋𝐎𝐕𝐄𝐑:- 𝗥𝗔𝗗𝗛𝗜𝗞𝗔 𝗝𝗢𝗦𝗛𝗜
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
@@ -51,11 +51,11 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- [MR MAFIYA](https://www.facebook.com/Abdulhakimbd0)
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- [MR MAFIYA](https://www.facebook.com/M9FIY9D0NH3R3)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- [MR MAFIYA](https://www.facebook.com/profile.php?id=100094684952832/)
+- 📱𝟐𝐍𝐃 𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐈𝐃:- [MR MAFIYA](https://www.facebook.com/profile.php?id=61553622382646)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
